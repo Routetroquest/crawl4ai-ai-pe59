@@ -1,4 +1,4 @@
-# 
+# Inteligente Crawl4AI scripts. Com suporte multimodal e busca semântica — otimizado para máximo desempenho e eficiência.
 
 
 
